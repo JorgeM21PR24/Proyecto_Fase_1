@@ -12,5 +12,5 @@ GT 01
 # Héctor José Marquez Chicas	        MC233291
 
 
-# LINK DE VIDEO:
+# LINK DE VIDEO - DEFENSA:
 https://drive.google.com/file/d/1J6sroILK1l59nGWhkwE2o2ofINaUqbgz/view?usp=sharing
