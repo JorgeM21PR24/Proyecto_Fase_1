@@ -10,3 +10,7 @@ GT 01
 # Ever Félix De León Mendoza	        DM191820
 # Jorge Marvin Peña Roque	            PR243380
 # Héctor José Marquez Chicas	        MC233291
+
+
+# LINK DE VIDEO:
+https://drive.google.com/file/d/1J6sroILK1l59nGWhkwE2o2ofINaUqbgz/view?usp=sharing
